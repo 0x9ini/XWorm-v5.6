@@ -1,5 +1,6 @@
 
 
-![w](https://github.com/user-attachments/assets/4c7a41d7-27fe-44ef-9c3a-2ff887791e03)
+![deubg](https://github.com/user-attachments/assets/15d60cc3-597e-4041-b967-31ee3a604b69)
+
 
                                 enjoy 😈
